@@ -12,9 +12,9 @@
 
 - 🌱 I’m currently learning **Spring Boot, React Js and Advance Java**
 
-- 📫 How to reach me **mbahirh624@gmail.com**
+- 📫 How to reach me **mbahirh624@gmail.com / +94 768816878**
 
-- 📄 Know about my experiences (https://drive.google.com/file/d/13pt0Jq9EhkXbNwsHUSFOmmCMHr2JeKV4/view?usp=sharing)
+- 📄 Check my CV (https://drive.google.com/file/d/13pt0Jq9EhkXbNwsHUSFOmmCMHr2JeKV4/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
