@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **mbahirh624@gmail.com / +94 768816878**
 
-- 📄 Check my CV (https://drive.google.com/file/d/1CL6F6f_326nh6sBZrTrp3EiM0YXRGpmq/view?usp=drive_link)
+- 📄 Check my CV (https://drive.google.com/uc?export=download&id=1Fp743xtliG454TEdvoe3unRlpZwe2h1M)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
